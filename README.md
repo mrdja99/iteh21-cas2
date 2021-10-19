@@ -1,1 +1,1 @@
-# iteh21-cas2
+Vezbe br.2 iz iteha
